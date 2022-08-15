@@ -3,6 +3,8 @@
 ---
 
 
+8/12/22 with Flick, Yanny, Corbie, Dale, and Sitss
+
 We spend some time getting character sheets and tokens set up and linked between DnD Beyond and Roll20. It takes about half an hour.
 
 We have all found ourselves in the western foothills of the mountains. We eached received instructions for how to get here independently. Some roads, some scrabbly donkey paths. Eventually we found ourselves in Mish'ael. As we approach, no one really pays us attention. It's a small village, 8-10 buildings around the main square, a few other dwellings around the hillside. Maybe 50 total population. We enter the main square. We hear normal village noises, but no one's paying us much mind. The only sign of note is for The Wanderlust Inn. It's very odd how no-one is paying us any mind. The only other instructions we have is "make yourself useful." We all arrive scattered throughout the day. 
